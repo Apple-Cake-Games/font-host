@@ -1,1 +1,1 @@
-# font-host
+© 2026 Apple-Cake-Games. All rights reserved.
